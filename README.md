@@ -1,8 +1,8 @@
 # Bless BOT
 Bless BOT
 
-- Register Here : [Bless](https://bless.network/dashboard?ref=BPSZ9G)
-- Use Code: BPSZ9G
+- Register Here : [Bless](https://bless.network/dashboard?ref=TKP5VV)
+- Use Code: TKP5VV
 
 ## Features
 
